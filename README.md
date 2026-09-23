@@ -1,10 +1,10 @@
 <div align="center">
 
-# <img src="https://media1.tenor.com/m/1FnrpVV7kT8AAAAd/arbok-pok%C3%A9mon.gif" width="32"> TRAINER PROFILE <img src="[https://media.giphy.com/media/PLACEHOLDER/giphy.gif](https://66.media.tumblr.com/746d1061cfd8e6b2f23f2cb84ea1f923/tumblr_mm4sxbkDs41rfjowdo1_500.gif)" width="32">
+# <img src="https://media1.tenor.com/m/1FnrpVV7kT8AAAAd/arbok-pok%C3%A9mon.gif" width="32"> TRAINER PROFILE <img src="[https://media.giphy.com/media/PLACEHOLDER/giphy.gif]([https://66.media.tumblr.com/746d1061cfd8e6b2f23f2cb84ea1f923/tumblr_mm4sxbkDs41rfjowdo1_500.gif](https://media1.tenor.com/m/OikP2JhhPikAAAAC/heart-love-it.gif))" width="32">
 
 ### `▶ CREPE ◀`
 
-<img src="[⚝](https://i.pinimg.com/originals/28/0c/ce/280cce686e0f1bb09b62b181e22b7d70.gif)" width="120">
+<img src="[⚝]([https://i.pinimg.com/originals/28/0c/ce/280cce686e0f1bb09b62b181e22b7d70.gif](https://media1.tenor.com/m/PftptjaWgJAAAAAC/wape-around-the-tree-poison-type.gif))" width="120">
 
 **`A wild TRAINER appeared!`**
 
